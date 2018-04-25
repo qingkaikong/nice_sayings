@@ -35,4 +35,3 @@
 * The less you talk, the more you're listened to. - Pauline Phillips
 * One faces the future with one's past. - Pearl S. Buck
 * Cherish your human connections: your relationships with friends and family. - Joseph Brodsky
-* 
