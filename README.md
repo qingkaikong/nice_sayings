@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* The present time has one advantage over every other - it is our own - Charles Caleb Colton  
 * They always say time changes things, but you actually have to change them yourself - Andy Warhol  
 * Never retreat. Never explain. Get it done and let them howl - Benjamin Jowett
 * The past is really almost as much a work of the imagination as the future - Jessamyn West
