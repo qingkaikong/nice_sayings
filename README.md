@@ -1,5 +1,7 @@
 ## nice sayings I really like:
 
+
+* It is not the mountain we conquer but ourselves - Edmund Hillary
 * It is an ironic habit of human beings to run faster when we have lost our way - Rollo May
 * The present time has one advantage over every other - it is our own - Charles Caleb Colton  
 * They always say time changes things, but you actually have to change them yourself - Andy Warhol  
