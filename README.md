@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* Success is getting what you want. Happiness is wanting what you get - Dale Carnegie
 * What hurts more, the pain of hard work or the pain of regret?
 * All great achievements require time - Maya Angelou
 * It is not the mountain we conquer but ourselves - Edmund Hillary
