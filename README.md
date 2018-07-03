@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* Freedom means the opportunity to be what we never thought we would be - Daniel J. Boorstin
 * Our knowledge is a little island in a great ocean of nonknowledge - Isaac Bashevis Singer
 * Work is much more fun than fun - Noel Coward
 * Many of life's failures are people who did not realize how close they were to success when they gave up - Thomas A. Edison
