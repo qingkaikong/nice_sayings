@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* This is the precept by which I have lived: Prepare for the worst; expect the best; and take what comes - Hannah Arendt
 * You will never win if you never begin - Helen Rowland
 * Patience is the companion of wisdom - Saint Augustine
 * Freedom means the opportunity to be what we never thought we would be - Daniel J. Boorstin
