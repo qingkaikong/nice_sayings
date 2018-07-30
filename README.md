@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* You will never win if you never begin - Helen Rowland
 * Patience is the companion of wisdom - Saint Augustine
 * Freedom means the opportunity to be what we never thought we would be - Daniel J. Boorstin
 * Our knowledge is a little island in a great ocean of nonknowledge - Isaac Bashevis Singer
