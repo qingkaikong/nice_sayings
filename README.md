@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* The greatest remedy for anger is delay - Lucius Annaeus Seneca
 * To advise is not to compel - Anton Chekhov
 * This is the precept by which I have lived: Prepare for the worst; expect the best; and take what comes - Hannah Arendt
 * You will never win if you never begin - Helen Rowland
