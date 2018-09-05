@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* What happens is not as important as how you react to what happens - Ellen Glasgow
 * Between saying and doing, many a pair of shoes is worn out - Iris Murdoch
 * A great work is made out of a combination of obedience and liberty - Nadia Boulanger
 * The greatest remedy for anger is delay - Lucius Annaeus Seneca
