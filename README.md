@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* Care and diligence bring luck - Thomas Fuller
 * If you are lucky enough to find a way of life you love, you have to find the courage to live it - John Irving
 * What happens is not as important as how you react to what happens - Ellen Glasgow
 * Between saying and doing, many a pair of shoes is worn out - Iris Murdoch
