@@ -1,5 +1,17 @@
 ## nice sayings I really like:
 
+* Be faithful to that which exists within yourself - Andre Gide
+* The only way to discover the limits of the possible is to go beyond them into the impossible - Arthur C. Clarke
+* It's always too early to quit - Norman Vincent Peale
+* There are many ways of going forward, but only one way of standing still - Franklin D. Roosevelt
+* I didn't think; I experimented - Anthony Burgess
+* They can conquer who believe they can - Virgil
+* You can never plan the future by the past - Edmund Burke
+* The whole secret of life is to be interested in one thing profoundly and in a thousand things well - Horace Walpole
+* The art of writing is the art of discovering what you believe - Gustave Flaubert
+* What is called genius is the abundance of life and health - Henry David Thoreau
+* Every burden is a blessing - Walt Kelly
+* The man who is swimming against the stream knows the strength of it - Woodrow Wilson
 * Care and diligence bring luck - Thomas Fuller
 * If you are lucky enough to find a way of life you love, you have to find the courage to live it - John Irving
 * What happens is not as important as how you react to what happens - Ellen Glasgow
