@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* There is nothing like a dream to create the future - Victor Hugo
 * Be faithful to that which exists within yourself - Andre Gide
 * The only way to discover the limits of the possible is to go beyond them into the impossible - Arthur C. Clarke
 * It's always too early to quit - Norman Vincent Peale
