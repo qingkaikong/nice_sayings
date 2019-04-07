@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* If you can't feed a hundred people, then feed just one - Mother Teresa
 * The most effective way to do it, is to do it - Amelia Earhart
 * There is nothing like a dream to create the future - Victor Hugo
 * Be faithful to that which exists within yourself - Andre Gide
