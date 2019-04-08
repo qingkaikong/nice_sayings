@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* The present time has one advantage over every other - it is our own - Charles Caleb Colton
 * If you can't feed a hundred people, then feed just one - Mother Teresa
 * The most effective way to do it, is to do it - Amelia Earhart
 * There is nothing like a dream to create the future - Victor Hugo
