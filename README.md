@@ -1,9 +1,6 @@
 ## nice sayings I really like:
 
-* The present time has one advantage over every other - it is our own - Charles Caleb Colton
-* If you can't feed a hundred people, then feed just one - Mother Teresa
-* The most effective way to do it, is to do it - Amelia Earhart
-* There is nothing like a dream to create the future - Victor Hugo
+* Life is but thought - Sara Teasdale
 * Worry never robs tomorrow of its sorrow, it only saps today of its joy - Leo Buscaglia
 * Be faithful to that which exists within yourself - Andre Gide
 * The only way to discover the limits of the possible is to go beyond them into the impossible - Arthur C. Clarke
