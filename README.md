@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* Never retreat. Never explain. Get it done and let them howl - Benjamin Jowett
 * The present time has one advantage over every other - it is our own - Charles Caleb Colton
 * If you can't feed a hundred people, then feed just one - Mother Teresa
 * The most effective way to do it, is to do it - Amelia Earhart
