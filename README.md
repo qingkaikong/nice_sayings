@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* He has achieved success who has worked well, laughed often, and loved much - Elbert Hubbard
 * Never retreat. Never explain. Get it done and let them howl - Benjamin Jowett
 * The present time has one advantage over every other - it is our own - Charles Caleb Colton
 * If you can't feed a hundred people, then feed just one - Mother Teresa
