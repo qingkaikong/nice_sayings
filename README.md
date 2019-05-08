@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* All great achievements require time - Maya Angelou
 * He has achieved success who has worked well, laughed often, and loved much - Elbert Hubbard
 * Never retreat. Never explain. Get it done and let them howl - Benjamin Jowett
 * The present time has one advantage over every other - it is our own - Charles Caleb Colton
