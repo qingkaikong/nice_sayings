@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* Glory is fleeting, but obscurity is forever - Napoleon Bonaparte
 * All great achievements require time - Maya Angelou
 * He has achieved success who has worked well, laughed often, and loved much - Elbert Hubbard
 * Never retreat. Never explain. Get it done and let them howl - Benjamin Jowett
