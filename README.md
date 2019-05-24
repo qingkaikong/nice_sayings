@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* Either move or be moved - Ezra Pound
 * Fear is the mother of foresight - Thomas Hardy
 * We are all gifted. That is our inheritance - Ethel Waters
 * It is not the mountain we conquer but ourselves - Edmund Hillary
