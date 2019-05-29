@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* It is an ironic habit of human beings to run faster when we have lost our way - Rollo May
 * Either move or be moved - Ezra Pound
 * Fear is the mother of foresight - Thomas Hardy
 * We are all gifted. That is our inheritance - Ethel Waters
