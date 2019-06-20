@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* Nothing is work unless you'd rather be doing something else - George Halas
 * Success is getting what you want. Happiness is wanting what you get - Dale Carnegie
 * It is an ironic habit of human beings to run faster when we have lost our way - Rollo May
 * Either move or be moved - Ezra Pound
