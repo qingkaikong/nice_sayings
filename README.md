@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* Many of life's failures are people who did not realize how close they were to success when they gave up - Thomas A. Edison
 * That which does not kill us makes us stronger - Friedrich Nietzsche
 * Nothing is work unless you'd rather be doing something else - George Halas
 * Success is getting what you want. Happiness is wanting what you get - Dale Carnegie
