@@ -1,5 +1,7 @@
 ## nice sayings I really like:
 
+* To different minds, the same world is a hell, and a heaven - J. B. Priestley
+* You will never win if you never begin - Helen Rowland
 * This is the precept by which I have lived: Prepare for the worst; expect the best; and take what comes - Hannah Arendt
 * Doubt is the father of invention - Ambrose Bierce
 * Many of life's failures are people who did not realize how close they were to success when they gave up - Thomas A. Edison
