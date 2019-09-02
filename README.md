@@ -1,5 +1,18 @@
 ## nice sayings I really like:
 
+* 
+* You have to make it happen - Denis Diderot
+* Dreams will get you nowhere, a good kick in the pants will take you a long way - Baltasar Gracian
+* Success - keeping your mind awake and your desire asleep - Walter Scott
+* The greatest remedy for anger is delay - Lucius Annaeus Seneca
+* For the happiest life, days should be rigorously planned, nights left open to chance - Mignon McLaughlin
+* A great work is made out of a combination of obedience and liberty - Nadia Boulanger
+* I think and think for months and years. Ninety-nine times, the conclusion is false. The hundredth time I am right - Albert Einstein
+* The art of living is more like wrestling than dancing - Marcus Aurelius
+* Everyone is a genius at least once a year. The real geniuses simply have their bright ideas closer together - Georg C. Lichtenberg
+* We are not permitted to choose the frame of our destiny. But what we put into it is ours - Dag Hammarskjold
+* The aim of education is the knowledge not of facts but of values - William Inge
+* Between saying and doing, many a pair of shoes is worn out - Iris Murdoch
 * To different minds, the same world is a hell, and a heaven - J. B. Priestley
 * You will never win if you never begin - Helen Rowland
 * This is the precept by which I have lived: Prepare for the worst; expect the best; and take what comes - Hannah Arendt
