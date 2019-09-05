@@ -1,6 +1,6 @@
 ## nice sayings I really like:
 
-* 
+* What happens is not as important as how you react to what happens - Ellen Glasgow
 * You have to make it happen - Denis Diderot
 * Dreams will get you nowhere, a good kick in the pants will take you a long way - Baltasar Gracian
 * Success - keeping your mind awake and your desire asleep - Walter Scott
