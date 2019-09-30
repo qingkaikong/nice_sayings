@@ -1,5 +1,6 @@
 ## nice sayings I really like:
 
+* The hardest thing is to take less when you can get more - Kin Hubbard
 * Obstacles are things a person sees when he takes his eyes off his goal - E. Joseph Cossman
 * What happens is not as important as how you react to what happens - Ellen Glasgow
 * You have to make it happen - Denis Diderot
